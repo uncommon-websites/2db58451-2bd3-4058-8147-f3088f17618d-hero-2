@@ -1,0 +1,2 @@
+# 2db58451-2bd3-4058-8147-f3088f17618d-hero-2
+Hero section variant 2 for 2db58451-2bd3-4058-8147-f3088f17618d
